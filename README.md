@@ -1,1 +1,1 @@
-# exploringdindia.github.io
+# exploringindia.github.io
